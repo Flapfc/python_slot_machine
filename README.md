@@ -10,8 +10,8 @@ https://www.youtube.com/watch?v=th4OBktqK1I
 
 All other Socials below for the content creator
 
-📸 Instagram: https://www.instagram.com/tech_with_tim 
-📱 Twitter: https://twitter.com/TechWithTimm 
-⭐ Discord: https://discord.gg/twt
-🌎 Website: https://techwithtim.net
-🔊 Podcast: https://anchor.fm/tech-with-tim
+📸 Instagram: https://www.instagram.com/tech_with_tim <br>
+📱 Twitter: https://twitter.com/TechWithTimm <br>
+⭐ Discord: https://discord.gg/twt <br>
+🌎 Website: https://techwithtim.net <br>
+🔊 Podcast: https://anchor.fm/tech-with-tim <br>
